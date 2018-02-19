@@ -1,1 +1,2 @@
-# The_Importance_of_Team_Dynamics
+# The Importance of Team Dynamics
+## What are Team Dynamics?
